@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @playboisolo
+- 👀 I’m interested in coding and automation
+- 🌱 I’m currently learning nothing yet
+- 💞️ I’m looking to collaborate but not sure what/who to collaborate with at the moment
+- 📫 You can reach me through discord;   @playboi solo#7644
